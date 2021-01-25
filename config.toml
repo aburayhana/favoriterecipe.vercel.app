@@ -1,4 +1,4 @@
-baseURL = "https://favoriterecipe.vercel.app"
+baseURL = "https://favoriterecipe.vercel.app/"
 languageCode = "en-us"
 title = "Recette"
 theme = "z"
