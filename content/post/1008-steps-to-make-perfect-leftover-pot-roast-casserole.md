@@ -1,0 +1,81 @@
+---
+description: "Steps to Make Perfect Leftover pot roast casserole"
+title: "Steps to Make Perfect Leftover pot roast casserole"
+slug: 1008-steps-to-make-perfect-leftover-pot-roast-casserole
+date: 2020-12-30T06:46:22.133Z
+image: https://img-global.cpcdn.com/recipes/4619744439173120/751x532cq70/leftover-pot-roast-casserole-recipe-main-photo.jpg
+thumbnail: https://img-global.cpcdn.com/recipes/4619744439173120/751x532cq70/leftover-pot-roast-casserole-recipe-main-photo.jpg
+cover: https://img-global.cpcdn.com/recipes/4619744439173120/751x532cq70/leftover-pot-roast-casserole-recipe-main-photo.jpg
+author: Harry Steele
+ratingvalue: 4.5
+reviewcount: 40550
+recipeingredient:
+- "1 chopped pot roast"
+- "1 chopped potato from pot roast"
+- "1 onion from pot roast"
+- "1 Sarahchi sauce"
+- "1 lb ground turkey sausage"
+- "1 cup Cottage cheese"
+- "1 cheese used parmesan Romano "
+- "1 left over gravy from pot roast"
+recipeinstructions:
+- "Cook ground turkey sausage in skillet an add favorite seasoning as desired."
+- "Combine cheeses gravy and sriracha sauce, save a little cheese to top it with."
+- "Combine with remaining ingredients put in a casserole and sprinkle with remaining cheese. Pop in the oven at 350 until cheese is melted and heated all the way through"
+categories:
+- Recipe
+tags:
+- leftover
+- pot
+- roast
+
+katakunci: leftover pot roast 
+nutrition: 134 calories
+recipecuisine: American
+preptime: "PT18M"
+cooktime: "PT44M"
+recipeyield: "3"
+recipecategory: Dinner
+
+---
+
+
+![Leftover pot roast casserole](https://img-global.cpcdn.com/recipes/4619744439173120/751x532cq70/leftover-pot-roast-casserole-recipe-main-photo.jpg)
+
+Hey everyone, it's me, Dave, welcome to our recipe site. Today, we're going to prepare a special dish, leftover pot roast casserole. One of my favorites. This time, I am going to make it a bit unique. This is gonna smell and look delicious.
+
+Leftover pot roast casserole is one of the most well liked of current trending meals in the world. It is easy, it's fast, it tastes yummy. It's appreciated by millions daily. Leftover pot roast casserole is something that I've loved my entire life. They're fine and they look wonderful.
+
+Try this easy casserole with leftover pot roast, boxed scalloped potatoes, baby carrots, and onion that comes together in a flash. Leftover Pot Roast Casserole. this link is to an external site that may or may not meet accessibility guidelines. Whether you&#39;re starting from scratch or with a fridge full of pot roast leftovers, this casserole is easy to put together for a comforting meal. Chop Roast into cubes or shred into bite size pieces.
+
+
+To get started with this particular recipe, we have to first prepare a few ingredients. You can have leftover pot roast casserole using 8 ingredients and 3 steps. Here is how you cook it.
+
+<!--inarticleads1-->
+
+##### The ingredients needed to make Leftover pot roast casserole:
+
+1. Prepare 1 chopped pot roast
+1. Make ready 1 chopped potato from pot roast
+1. Take 1 onion from pot roast
+1. Get 1 Sarahchi sauce
+1. Prepare 1 lb ground turkey sausage
+1. Take 1 cup Cottage cheese
+1. Prepare 1 cheese (used parmesan Romano )
+1. Prepare 1 left over gravy from pot roast
+
+
+Angry Grandpa made his Breakfast Lasagna, so I made up my own version that was inspired by him. It is made from leftover pot roast, scrambled eggs, cheese. Inevitably, one of the first things people say to me when they discover that I have two sons is, &#34;Just wait until the teenage years! Leftover Pot Roast Soup adds fresh herbs and meaty mushrooms for a rich, brothy soup that is comfort food at it&#39;s best! 
+
+<!--inarticleads2-->
+
+##### Steps to make Leftover pot roast casserole:
+
+1. Cook ground turkey sausage in skillet an add favorite seasoning as desired.
+1. Combine cheeses gravy and sriracha sauce, save a little cheese to top it with.
+1. Combine with remaining ingredients put in a casserole and sprinkle with remaining cheese. Pop in the oven at 350 until cheese is melted and heated all the way through
+
+
+Inevitably, one of the first things people say to me when they discover that I have two sons is, &#34;Just wait until the teenage years! Leftover Pot Roast Soup adds fresh herbs and meaty mushrooms for a rich, brothy soup that is comfort food at it&#39;s best! And it could not be easier. This one pot stew uses up all your roast dinner leftovers in one go and has a great honey mustard tang, from BBC Good Food. Bring up to a simmer and stir in the turkey and roast veg. 
+
+So that's going to wrap this up for this exceptional food leftover pot roast casserole recipe. Thanks so much for reading. I'm sure you will make this at home. There's gonna be interesting food at home recipes coming up. Don't forget to bookmark this page in your browser, and share it to your loved ones, colleague and friends. Thank you for reading. Go on get cooking!

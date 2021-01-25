@@ -1,0 +1,103 @@
+---
+description: "Recipe of Favorite Easy Bread Rolls"
+title: "Recipe of Favorite Easy Bread Rolls"
+slug: 104-recipe-of-favorite-easy-bread-rolls
+date: 2020-08-17T02:56:02.604Z
+image: https://img-global.cpcdn.com/recipes/6106676379254784/751x532cq70/easy-bread-rolls-recipe-main-photo.jpg
+thumbnail: https://img-global.cpcdn.com/recipes/6106676379254784/751x532cq70/easy-bread-rolls-recipe-main-photo.jpg
+cover: https://img-global.cpcdn.com/recipes/6106676379254784/751x532cq70/easy-bread-rolls-recipe-main-photo.jpg
+author: Cornelia Todd
+ratingvalue: 4.4
+reviewcount: 6149
+recipeingredient:
+- "1/2 kg allpurpose flour"
+- "3 tbsp olive oil"
+- "300 ml luke warm water"
+- "7 grams active dry yeast"
+- "1 tsp salt"
+- "1 1/2 tsp sugar"
+- "1 small egg for glazing purposes only"
+recipeinstructions:
+- "Mix the dry ingredients together with the help of a fork in a large bowl"
+- "Make a space in the middle of the bowl to add the olive oil"
+- "Add the water slowly to your mix and mix them using your hand"
+- "Take the dough out of the bowl and Keep mixing the dough for 10 minutes using both hands"
+- "Place the dough in a bowl sprayed with some oil"
+- "Cover the dough with nylon and a wet towel and leave it for 1 hour"
+- "Preheat the oven to 220 celcius"
+- "Mix the dough for few minutes before you divide it for 8 parts"
+- "You can shape it into small rolls or braids"
+- "You can brush it with egg using a kitchen brush"
+- "Place it on a tray covered with baking sheet"
+- "Let it rest for 10 to 15 minutes before it goes to the oven"
+- "It goes in to the oven for 12 to15 minutes on 220 celcius"
+- "Once baked take it out of the oven and cover it with dry tea towel to absorb moisture"
+- "Enjoy it while its warm with some butter or any other spread"
+categories:
+- Recipe
+tags:
+- easy
+- bread
+- rolls
+
+katakunci: easy bread rolls 
+nutrition: 262 calories
+recipecuisine: American
+preptime: "PT26M"
+cooktime: "PT41M"
+recipeyield: "4"
+recipecategory: Lunch
+
+---
+
+
+![Easy Bread Rolls](https://img-global.cpcdn.com/recipes/6106676379254784/751x532cq70/easy-bread-rolls-recipe-main-photo.jpg)
+
+Hey everyone, it's Louise, welcome to our recipe page. Today, I'm gonna show you how to make a distinctive dish, easy bread rolls. It is one of my favorites. This time, I will make it a little bit unique. This is gonna smell and look delicious.
+
+Easy Bread Rolls is one of the most popular of recent trending meals on earth. It's appreciated by millions every day. It's easy, it's fast, it tastes yummy. Easy Bread Rolls is something which I have loved my whole life. They're nice and they look wonderful.
+
+Bread-Potato Roll/Aloo bread roll by Tiffin Box Potato Stuffed Bread Roll Easy Indian Snack Recipe. Easy Recipe for White Bread Rolls. Rolls are one of the best types of bread to bake, and when they taste exactly like white bread, are quite versatile.
+
+
+To begin with this particular recipe, we have to first prepare a few ingredients. You can cook easy bread rolls using 7 ingredients and 15 steps. Here is how you cook that.
+
+<!--inarticleads1-->
+
+##### The ingredients needed to make Easy Bread Rolls:
+
+1. Take 1/2 kg all-purpose flour
+1. Make ready 3 tbsp olive oil
+1. Make ready 300 ml luke warm water
+1. Make ready 7 grams active dry yeast
+1. Take 1 tsp salt
+1. Take 1 1/2 tsp sugar
+1. Prepare 1 small egg (for glazing purposes only)
+
+
+This is our favorite breakfast roll recipe. Find out how to make bread rolls with this quick &amp; easy recipe that&#39;s kid-friendly. Simple Quick Breads, Savory Dinner Rolls, Healthy Banana Bread, Gluten-Free Bread, Sweet Easy Caramel Apple Monkey Bread for the fall breakfast ideas win! Quick and easy pull-apart bread with. 
+
+<!--inarticleads2-->
+
+##### Steps to make Easy Bread Rolls:
+
+1. Mix the dry ingredients together with the help of a fork in a large bowl
+1. Make a space in the middle of the bowl to add the olive oil
+1. Add the water slowly to your mix and mix them using your hand
+1. Take the dough out of the bowl and Keep mixing the dough for 10 minutes using both hands
+1. Place the dough in a bowl sprayed with some oil
+1. Cover the dough with nylon and a wet towel and leave it for 1 hour
+1. Preheat the oven to 220 celcius
+1. Mix the dough for few minutes before you divide it for 8 parts
+1. You can shape it into small rolls or braids
+1. You can brush it with egg using a kitchen brush
+1. Place it on a tray covered with baking sheet
+1. Let it rest for 10 to 15 minutes before it goes to the oven
+1. It goes in to the oven for 12 to15 minutes on 220 celcius
+1. Once baked take it out of the oven and cover it with dry tea towel to absorb moisture
+1. Enjoy it while its warm with some butter or any other spread
+
+
+Simple Quick Breads, Savory Dinner Rolls, Healthy Banana Bread, Gluten-Free Bread, Sweet Easy Caramel Apple Monkey Bread for the fall breakfast ideas win! Quick and easy pull-apart bread with. Recipes for making quick breads and rolls for dinner and even breakfast. On this page are recipes I&#39;ve gathered for making Easy Breads. I&#39;m really not a fan of kneading, even though I will if I have to. 
+
+So that is going to wrap it up for this exceptional food easy bread rolls recipe. Thank you very much for reading. I'm confident you will make this at home. There is gonna be more interesting food at home recipes coming up. Remember to save this page in your browser, and share it to your family, friends and colleague. Thanks again for reading. Go on get cooking!

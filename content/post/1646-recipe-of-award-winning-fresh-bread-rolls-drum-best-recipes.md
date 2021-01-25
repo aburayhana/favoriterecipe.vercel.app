@@ -1,0 +1,87 @@
+---
+description: "Recipe of Award-winning fresh bread rolls (Drum best recipes)"
+title: "Recipe of Award-winning fresh bread rolls (Drum best recipes)"
+slug: 1646-recipe-of-award-winning-fresh-bread-rolls-drum-best-recipes
+date: 2020-11-21T14:48:54.758Z
+image: https://img-global.cpcdn.com/recipes/62395338/751x532cq70/fresh-bread-rolls-drum-best-recipes-recipe-main-photo.jpg
+thumbnail: https://img-global.cpcdn.com/recipes/62395338/751x532cq70/fresh-bread-rolls-drum-best-recipes-recipe-main-photo.jpg
+cover: https://img-global.cpcdn.com/recipes/62395338/751x532cq70/fresh-bread-rolls-drum-best-recipes-recipe-main-photo.jpg
+author: Jeff Long
+ratingvalue: 5
+reviewcount: 21640
+recipeingredient:
+- "15 grams instant yeast"
+- "5 ml salt"
+- "15 ml sugar"
+- "430 ml lukewarm water"
+- "1 extra flour for dusting  butter"
+- "1 kg 8 cups bread flour"
+recipeinstructions:
+- "preheat oven to 180°F celsius and grease the bottom and sides of a 21 cm round baking pan with butter or margarine. dust liberally with flour"
+- "place ghe flour, yeast, salt and sugar in a large bowl and mix with your hand-use one hand to mix and the other to rotate the bowl"
+- "add water, a little at time and mix well after each addition. transfer to a floured surface and knead for 10-15 minutes into soft dough"
+- "shape into a ball, put into a clean, lightly greased dish and leave to rise for an hour or moreor until the dough has doubled in size"
+- "shape into 6 -8 equal sized ballsand dust liberally with flour. place in a circle in te baking pan with one in the middle"
+- "bake in the oven for 25-30 minutes until doen but stil slightly pale. smear the top with butter and dust with more flourand bake for 5 -10 minutes, until the bread is slighlty golden on top"
+- "remove from the oven and cool slightly before serving"
+- "enjoy your rolls"
+categories:
+- Recipe
+tags:
+- fresh
+- bread
+- rolls
+
+katakunci: fresh bread rolls 
+nutrition: 178 calories
+recipecuisine: American
+preptime: "PT15M"
+cooktime: "PT46M"
+recipeyield: "1"
+recipecategory: Lunch
+
+---
+
+
+![fresh bread rolls (Drum best recipes)](https://img-global.cpcdn.com/recipes/62395338/751x532cq70/fresh-bread-rolls-drum-best-recipes-recipe-main-photo.jpg)
+
+Hey everyone, it is John, welcome to my recipe site. Today, I will show you a way to prepare a distinctive dish, fresh bread rolls (drum best recipes). One of my favorites food recipes. This time, I will make it a bit tasty. This will be really delicious.
+
+fresh bread rolls (Drum best recipes) is one of the most favored of current trending meals on earth. It's simple, it's fast, it tastes delicious. It is enjoyed by millions daily. fresh bread rolls (Drum best recipes) is something that I've loved my whole life. They're nice and they look fantastic.
+
+Bread Patties a la India Style - Fusion Bread DumplingsMasala Herb. In this Bread Roll Recipe I have shown how to make Potato Stuffed Bread Roll. If you want to fill your kitchen with the smell of fresh-baked bread but you&#39;re nervous about shaping a boule or working with a starter, focaccia is the best place to begin. The dough for this rolls are made using a bread maker.
+
+
+To begin with this particular recipe, we must prepare a few ingredients. You can have fresh bread rolls (drum best recipes) using 6 ingredients and 8 steps. Here is how you can achieve that.
+
+<!--inarticleads1-->
+
+##### The ingredients needed to make fresh bread rolls (Drum best recipes):
+
+1. Make ready 15 grams instant yeast
+1. Prepare 5 ml salt
+1. Make ready 15 ml sugar
+1. Take 430 ml lukewarm water
+1. Make ready 1 extra flour for dusting,  butter
+1. Prepare 1 kg (8 cups) bread flour
+
+
+Bread roll recipe - bread rolls recipe with stuffed potatoes. learn to make yummy bread rolls with step by step photos. to make bread rolls, use any bread of They were totally tasty. With fresh bread, the bread rolls won&#39;t be crisp and would also absorb oil. These golden, fluffy, butterfy rolls are great hot from the oven. In bread machine pan, put all ingredients in order suggested by manufacturer. 
+
+<!--inarticleads2-->
+
+##### Steps to make fresh bread rolls (Drum best recipes):
+
+1. preheat oven to 180°F celsius and grease the bottom and sides of a 21 cm round baking pan with butter or margarine. dust liberally with flour
+1. place ghe flour, yeast, salt and sugar in a large bowl and mix with your hand-use one hand to mix and the other to rotate the bowl
+1. add water, a little at time and mix well after each addition. transfer to a floured surface and knead for 10-15 minutes into soft dough
+1. shape into a ball, put into a clean, lightly greased dish and leave to rise for an hour or moreor until the dough has doubled in size
+1. shape into 6 -8 equal sized ballsand dust liberally with flour. place in a circle in te baking pan with one in the middle
+1. bake in the oven for 25-30 minutes until doen but stil slightly pale. smear the top with butter and dust with more flourand bake for 5 -10 minutes, until the bread is slighlty golden on top
+1. remove from the oven and cool slightly before serving
+1. enjoy your rolls
+
+
+These golden, fluffy, butterfy rolls are great hot from the oven. In bread machine pan, put all ingredients in order suggested by manufacturer. When cycle is completed, turn dough onto a lightly floured surface. Though, I am sure where you live, it might not be called bread rolls. I would of course just call it bread rolls, but many parts of the world have a different Your air fryer bread dough rolls are now ready and taste just as good as fresh but have a slightly browner crust. 
+
+So that is going to wrap this up for this special food fresh bread rolls (drum best recipes) recipe. Thank you very much for reading. I am confident you can make this at home. There is gonna be interesting food at home recipes coming up. Don't forget to bookmark this page on your browser, and share it to your family, colleague and friends. Thanks again for reading. Go on get cooking!
